@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Eaglelinkzz
 - 👀 I’m interested in Deploying
-- 🌱 I’m currently learning Coding
+- 🌱 I’m currently...
 - 💞️ I’m looking to collaborate on Telegram
 - 📫 How to reach me youtube:https://youtube.com/@EagleTechTamil_01
 - and In Telegram:http://t.me/EagleLinkzz_70
